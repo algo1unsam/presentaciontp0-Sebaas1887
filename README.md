@@ -19,7 +19,7 @@ Foto de mi persona:
 
 ![d](https://alicante.com.ar/uploads/recetas/87_receta.jpg)
 
-Diente de Leon
+La tarta magica
 
 ------
 
